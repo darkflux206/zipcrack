@@ -1,2 +1,0 @@
-# zipcrack
-Now Fuck 
